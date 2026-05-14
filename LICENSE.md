@@ -1,4 +1,4 @@
-#  
+#  Experience one tap like never before with exclusive one tap Scripts, the #1 Script. Includes custom skins and auto-collect for unbeatable performance.
 
 
 
